@@ -3,7 +3,7 @@
 * Número de pessoas: 4
 * Grau de dificuldade: Fácil
 
-## Ingredientes
+## Ingredientes:
 
 * 2 garrafinhas de azeite
 * 2 cebolas picadas
@@ -18,7 +18,7 @@
 * Sal
 * Pimenta
 
-## Materiais
+## Materiais:
 
 * 1 tábua de corte
 * 1 faca de chefe

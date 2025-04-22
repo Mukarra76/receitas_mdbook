@@ -1,21 +1,38 @@
 # Tarte de Amêndoa
 
+* Número de pessoas: 4
+* Grau de dificuldade: Fácil
+
 ## Ingredientes:
 
-* 125 g de farinha
-* 125 g de açúcar 
-* 60 g de manteiga
-* 2 Ovos
+* 125g de farinha
+* 125g de açúcar 
+* 60g de manteiga
+* 2 ovos
 
 ## Cobertura:
 
-* 125 g de amêndoa pelada e fatiada
-* 100 g de manteiga
-* 125 g de açucar
+* 125g de amêndoa pelada e fatiada
+* 100g de manteiga
+* 125g de açucar
 * 1 cálice leite
 
 ## Preparação:
 
-Para começar junta-se a farinha, açúcar, os ovos inteiros e a manteiga… agora toca a bater tudo com força!!!! Depois de tudo batido e misturado com muito “amori” e carinho, vamos untar a tarteira com manteiga… ponham a massa no forno e voila! Deixem cozinhar! (o tempo de cozedura é controlado por vocês…) e o que falta fazer?!?!?!?
+### Massa
 
-A cobertura! Então vá… juntamos então o açúcar, a manteiga e a amêndoa… deixa um pouco ao lume… junte agora o cálice de leite e deixe mais um pouco ao lume… agora ponha isso tudo por cima da massa e… vai ao forno aloirar… que maravilha! Conseguiu fazer uma tarte de amêndoa!
+1. Juntar a farinha, açúcar, os ovos inteiros e a manteiga e bater.
+
+2. Após estar tudo batido e misturado, untar a tarteira com manteiga.
+
+3. Pôr a massa no forno, sendo o tempo de cozedura controlado pela pessoa.
+
+### Cobertura
+
+1. Juntar o açúcar, a manteiga e a amêndoa.
+
+2. Deixar um pouco ao lume.
+
+3. Junte agora o cálice de leite e deixe mais um pouco ao lume.
+
+4. Por tudo por cima da massa e por no forno para aloirar.
